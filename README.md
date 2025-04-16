@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **msp.01209@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1De6QSt4MlkvPVPLvXEn1z549H3cABbqF/view?usp=sharing](https://drive.google.com/file/d/1De6QSt4MlkvPVPLvXEn1z549H3cABbqF/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1vjnVj5baIfhHQsntRAjMmDOK0f4O0Ybi/view?usp=sharing](https://drive.google.com/file/d/1vjnVj5baIfhHQsntRAjMmDOK0f4O0Ybi/view?usp=sharing)
 
 - ⚡ Fun fact **I come from the arts, but I taught myself to code because I believe creativity works best with logic.**
 
